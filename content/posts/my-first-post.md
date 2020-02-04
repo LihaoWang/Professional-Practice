@@ -18,7 +18,7 @@ I think I didn't pay enough attention to the play part of my life. I'd like to t
 
 I don't think it's a gravity problem because it isn't the type of thing that I have to accept. The possible solution could be dedicate less time on working and more on playing. Also, I could find something that interests me and do it for fun. In this way, I won't focus too much on working. 
 
-##Pitch
+## Pitch
 
 My name is Leo. I'm currently a senior student major in Integrated Digital Media at NYU. I'm a filmmaker based in New York City.
 
