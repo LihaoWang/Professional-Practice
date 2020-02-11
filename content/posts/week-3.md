@@ -1,7 +1,7 @@
 ---
 title: "Week 3"
 date: 2020-02-10T19:31:27-05:00
-draft: true
+draft: false
 ---
 ### Research Jenny. Write down 1 question to ask Jenny during the Q&A and post it to your blog.
 What’s different in product design for users limited access to the Internet?
