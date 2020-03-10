@@ -17,3 +17,29 @@ Thank you for your consideration. If you don’t have any recruitment plan right
 Best,
 Leo
 
+### Exercises
+
+Alternative Plan A: 
+Talk with people who go to graduate school in HCI program, especially those at schools that I really want to go.
+Talk with people who work at companies as UX designers, especially those at companies that I really want to work at.
+
+Alternative Plan B:
+Talk with people who have been to Australia with Working Holiday Visa
+Talk with people who have experience of working at TV stations in China
+Talk with people who have experience of movie industry in China
+
+Alternative Plan C:
+Talk with people who go to culinary school 
+Talk with people who apprenticed at fine dining restaurants
+
+Alternative Plan A: 
+Try to find problems and come up with possible solutions in one day 
+Internship as a UX designer
+
+Alternative Plan B:
+Cameraman for school projects
+Have a tour at TV station and see the real set
+
+Alternative Plan C:
+Cook for friends
+Make menus for others
